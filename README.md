@@ -20,7 +20,7 @@ To become one of India’s top AI engineers with a dream of cracking 100+ LPA op
 - 🌐 Build a strong portfolio
 
 ## 📫 Connect with me
- - [!LinkedIn](www.linkedin.com/in/chinmay-s-kumar-3b1109372)
+ - [![LinkedIn](www.linkedin.com/in/chinmay-s-kumar-3b1109372)
  - Email: chinmay1206p@gmail.com 
 
 ---
