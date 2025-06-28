@@ -1,7 +1,7 @@
 
 # 👋 Hi, I'm Chinmay S Kumar
 
-🎓 1st-year AI & ML Engineering Student | DSU  
+🎓 1st-year AI & ML Engineering Student | ( Still Waiting for KCET counsiling)
 📍 Bangalore, India
 
 ## 🚀 My Vision
