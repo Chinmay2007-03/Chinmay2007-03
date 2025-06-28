@@ -21,7 +21,7 @@ To become one of India’s top AI engineers with a dream of cracking 100+ LPA op
 
 ## 📫 Connect with me
 - [LinkedIn](https://linkedin.com/in/your-link) *(update this later)*
-- Email: chinmayskumar@email.com *(example)*
+- Email: chinmay1206p@gmail.com 
 
 ---
 
